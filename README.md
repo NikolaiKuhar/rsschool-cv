@@ -1,1 +1,0 @@
-[rsschool-cv](https://NikolaiKuhar.github.io/rsschool-cv/cv "rsschool-cv")
